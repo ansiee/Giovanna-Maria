@@ -1,2 +1,0 @@
-# Giovanna-Maria
-Meu perfil
